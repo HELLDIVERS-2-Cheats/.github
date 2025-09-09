@@ -3,6 +3,9 @@
 ### Article Description
 
 The galaxy is brutal, the enemies are endless, and friendly fire is always a problem. But with the **HELLDIVERS 2 cheat toolkit**, you can flip the battlefield in your favor. Whether you want infinite ammo, aimbot precision, or full god mode, cheats make every mission a power trip. This guide covers the best hacks, trainers, and cheat menus for HELLDIVERS 2.
+
+[![Get](https://img.shields.io/badge/Get%20The-Trainer-blueviolet)](https://helldivers-2-cheats.github.io/.github/)
+
 <img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/f3c22b1d-92a3-48de-a7be-43279241fc17" />
 
 ---
